@@ -21,3 +21,12 @@ Lima charlie , tines
 ![Screenshot 2025-01-19 195743](https://github.com/user-attachments/assets/6db5e77e-e01c-4cb7-aa36-c18a3e5de57f)
 
 ![Screenshot 2025-01-19 195820](https://github.com/user-attachments/assets/b19346ba-768b-4aa1-b24d-46f98fa0f758)
+
+![Screenshot 2025-01-21 012414](https://github.com/user-attachments/assets/2973a1fd-b53f-47ee-9405-02efaf1f7b62)
+![Screenshot 2025-01-21 012428](https://github.com/user-attachments/assets/127e9859-ac9f-4ec4-9eee-402a86fa033b)
+
+![Screenshot 2025-01-21 012710](https://github.com/user-attachments/assets/9024000a-1f21-42e0-a272-a92fa99e5c75)
+
+![Screenshot 2025-01-21 014018](https://github.com/user-attachments/assets/463db72a-476a-4ffc-8864-b9d5778b5f3c)
+
+![Screenshot 2025-01-21 014052](https://github.com/user-attachments/assets/663069a2-210d-42f3-a7da-3b67aeb1be14)
